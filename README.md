@@ -15,6 +15,8 @@
   We love cuddles so if you wanna sit with us, go a head but ask first if you see us with friends or smth 
  
   **WE are a system so if you see our mood swap or drop, its not cause of you most of the time. it will be just a different person fronting.**
+
+ ![Rentry!](https://rentry.co/constellationsysintro) ![atabook!](https://constellationsys.atabook.org/)
   ![divider bow](https://file.garden/Z_T9YJFUvSUt-G59/github%20divider.png)
   now enjoy our random stamps and blinkies
   
