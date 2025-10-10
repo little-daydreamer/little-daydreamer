@@ -3,7 +3,7 @@
   ![header](https://file.garden/Z_T9YJFUvSUt-G59/img_shin-sagi-shi.png)
   ![divider](https://file.garden/Z_T9YJFUvSUt-G59/banner%20for%20git)
 
-<p align="center"> $\color{#6bc27b}{\textsf{Aella/Constellation/Snap}}$ 
+<p align="center"> $\color{#6bc27b}{\textsf{Aella/Constellation}}$ 
 <p align="center"> $\color{#6bc27b}{\textsf{Any pronouns}}$ 
 <p align="center"> $\color{#6bc27b}{\textsf{biggest dumb idiots you have ever seen}}$ 
 
