@@ -8,6 +8,7 @@
 <p align="center"> $\color{#6bc27b}{\textsf{biggest dumb idiots you have ever seen}}$ 
 
 ![divider bow](https://file.garden/Z_T9YJFUvSUt-G59/github%20divider.png)
+<p align="center"> <img width="140" src="https://komarev.com/ghpvc/?username=githubusernamehere&color=32cd32" alt="views count">
 <p align="center"> You most likely saw this from pony town, so hello! We have a rentry that gives more info about us so read it. 
   But you are lazy, we can be a bit dry at times but its not cause we aren't intrested, its cause we are brain dead half of the time.
   We are quite clingy so if you don't like clingy people, then dni or whatever you choose.
