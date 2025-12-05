@@ -18,7 +18,6 @@
   **WE are a system so if you see our mood swap or drop, its not cause of you most of the time. it will be just a different person fronting.**
 
  ![Rentry!](https://rentry.co/newrentryforconsys) ![atabook!](https://constellationsys.atabook.org/)
- ![Rentry!]() ![atabook!](https://constellationsys.atabook.org/)
   ![divider bow](https://file.garden/Z_T9YJFUvSUt-G59/github%20divider.png)
   now enjoy our random stamps and blinkies
   
