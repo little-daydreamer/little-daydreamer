@@ -8,15 +8,15 @@
 
 ![divider by @uzmacchiato on tumblr](https://64.media.tumblr.com/5f4deeee829244ce6f278a3961e87f3a/b8216eb8bbd2310e-8e/s2048x3072/f95408e00ccb01acdbc97ea651020c6ecc330e84.pnj)
 <p align="center"> <img width="140" src="https://komarev.com/ghpvc/?username=githubusernamehere&color=32cd32" alt="views count">
-<p align="center"> You most likely saw this from pony town, so hello! We have a rentry that gives more info about us so read it. 
-  But you are lazy, we can be a bit dry at times but its not cause we aren't intrested, its cause we are brain dead half of the time.
-  We are quite clingy so if you don't like clingy people, then dni or whatever you choose.
-  we like listening to people yap, so if you want someone to talk to about your intrest or hyperfixations, we don't mind just not gonna be able to find words to reply properly to it unless we know the topic.
-  We love cuddles so if you wanna sit with us, go a head but ask first if you see us with friends or smth 
- 
+<p align="center"> You most likely saw this from pony town, so hello! We are open to cuddles and would love if you could cuddle with us!! 
+
+we are quite shy and socially anxious but if we have something in common, we would be a big chatter box!! 
+
+if you want to write us something nice just go to our [ATABOOK!!](https://constellationsys.atabook.org/)!! please sign it 🥺
+  
   **WE are a system so if you see our mood swap or drop, its not cause of you most of the time. it will be just a different person fronting.**
 
- [Rentry!](https://rentry.co/newrentryforconsys) [atabook!](https://constellationsys.atabook.org/)
+ [Rentry!](https://rentry.co/newrentryforconsys) 
 ![divider by @uzmacchiato on tumblr](https://64.media.tumblr.com/5f4deeee829244ce6f278a3961e87f3a/b8216eb8bbd2310e-8e/s2048x3072/f95408e00ccb01acdbc97ea651020c6ecc330e84.pnj)
   now enjoy our random stamps and blinkies
   
