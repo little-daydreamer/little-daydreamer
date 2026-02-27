@@ -45,6 +45,8 @@ if you want to write us something nice just go to our [ATABOOK!!](https://conste
   ![stamp22](https://64.media.tumblr.com/caa54e142f25a0dd9bed73b5cc1972b8/eb798f14551ba9ff-0e/s500x750/93b0f9e95f9d868155ca3f3606de4ad2dd6ce85c.png)
   ![stamp23](https://64.media.tumblr.com/0934d30c21a24d66ad0d85bd595589a5/cb147f4cc89ac710-8b/s100x200/f07e39d4790470d6c81c5a696acc482ec4ab5409.pnj)
   ![stamp24](https://64.media.tumblr.com/b50f86ecb219418c92df69eda9033b30/cb147f4cc89ac710-7e/s100x200/f4b402fec5f269b7cbe98c15aeddad3a928a7b01.pnj)
+  ![stamp25](https://file.garden/Z_T9YJFUvSUt-G59/luuk1.gif)
+  ![stamp26](https://file.garden/Z_T9YJFUvSUt-G59/luuk2.gif)
   
   
 
@@ -53,4 +55,5 @@ if you want to write us something nice just go to our [ATABOOK!!](https://conste
   ![blinke3](https://64.media.tumblr.com/7e259395a5789fe51f88e616cca1de65/f85aa4b8f0622a57-ca/s250x400/326c7a2a2b8ea1f00f54b5ca6d8618bd83e2439a.gif)
   ![blinkie4](https://64.media.tumblr.com/2ff7251f49e2c8b7b661b43a6e4e5a98/1449579a23d903ad-2d/s250x400/e99d5143cc27cbbfdb41a50e3dace3292665e022.gif)
   ![blinkie5](https://64.media.tumblr.com/e0a94086f6402ab35778f0ce6b726e9e/384277b095ef5641-47/s250x400/4a1006dfb5bb861a4b50882b76846c110980906e.gif)
+  ![blinkie6](https://file.garden/Z_T9YJFUvSUt-G59/luuk%20blinkie)
   
