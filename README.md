@@ -1,22 +1,25 @@
 <p align="center">
  
   ![divider](https://64.media.tumblr.com/0a7f5b867d304d88c1f4e16b0a4c3c00/ca9ac0b682976ce4-40/s2048x3072/9f40413fce95d10e96ff53312275e3b549ba4c41.pnj)
-
-<p align="center"> $\color{#f5978d}{\textsf{Aella/Constellation}}$ 
-<p align="center"> $\color{#f5978d}{\textsf{Any pronouns}}$ 
-<p align="center"> $\color{#f5978d}{\textsf{biggest dumb idiots you have ever seen}}$ 
-
 ![divider by @uzmacchiato on tumblr](https://64.media.tumblr.com/5f4deeee829244ce6f278a3961e87f3a/b8216eb8bbd2310e-8e/s2048x3072/f95408e00ccb01acdbc97ea651020c6ecc330e84.pnj)
 <p align="center"> <img width="140" src="https://komarev.com/ghpvc/?username=githubusernamehere&color=32cd32" alt="views count">
-<p align="center"> You most likely saw this from pony town, so hello! We are open to cuddles and would love if you could cuddle with us!! 
 
-we are quite shy and socially anxious but if we have something in common, we would be a big chatter box!! 
+         ⊹ ࣪ ˖ Constellation sys // Aella
+ 
+      𓂃 ࣪˖ ִֶָ𐀔 bodily a minor
 
-if you want to write us something nice just go to our [ATABOOK!!](https://constellationsys.atabook.org/)!! please sign it 🥺
-  
-  **WE are a system so if you see our mood swap or drop, its not cause of you most of the time. it will be just a different person fronting.**
+              ⊹ ࣪ ˖ A system
 
- [Rentry!](https://rentry.co/newrentryforconsys) 
+          ࣪ ִֶָ☾. usually found at hoyo area and afk there. 
+
+ ˙✧˖°🦊 ༘⋆｡˚ Jiaoqiu and luuk herssen mains (jiaoqiu please rerun)
+
+<p align="center">  ₊˚⊹ 𐂯 Please cuddle with us as we do enjoy cuddles . W2i with us as we are usually afk . checkout our rentry and atabook if you want more about us. 
+        
+ 
+ [Rentry!](https://rentry.co/newrentryforconsys) [atabook](https://constellationsys.atabook.org/)
+
+ ![luuk n jiaoqiu PLEASE KISS DAMN IT](https://file.garden/Z_T9YJFUvSUt-G59/jiaoqiu%20n%20luuk%20kiss%20please)
 ![divider by @uzmacchiato on tumblr](https://64.media.tumblr.com/5f4deeee829244ce6f278a3961e87f3a/b8216eb8bbd2310e-8e/s2048x3072/f95408e00ccb01acdbc97ea651020c6ecc330e84.pnj)
   now enjoy our random stamps and blinkies
     
