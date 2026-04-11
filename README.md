@@ -1,6 +1,7 @@
 <p align="center">
  
   ![divider](https://64.media.tumblr.com/0a7f5b867d304d88c1f4e16b0a4c3c00/ca9ac0b682976ce4-40/s2048x3072/9f40413fce95d10e96ff53312275e3b549ba4c41.pnj)
+   ![luuk n jiaoqiu PLEASE KISS DAMN IT](https://file.garden/Z_T9YJFUvSUt-G59/jiaoqiu%20n%20luuk%20kiss%20please)
 ![divider by @uzmacchiato on tumblr](https://64.media.tumblr.com/5f4deeee829244ce6f278a3961e87f3a/b8216eb8bbd2310e-8e/s2048x3072/f95408e00ccb01acdbc97ea651020c6ecc330e84.pnj)
 <p align="center"> <img width="140" src="https://komarev.com/ghpvc/?username=githubusernamehere&color=32cd32" alt="views count">
 
@@ -19,7 +20,7 @@
  
  [Rentry!](https://rentry.co/newrentryforconsys) [atabook](https://constellationsys.atabook.org/)
 
- ![luuk n jiaoqiu PLEASE KISS DAMN IT](https://file.garden/Z_T9YJFUvSUt-G59/jiaoqiu%20n%20luuk%20kiss%20please)
+![our husbands](https://file.garden/Z_T9YJFUvSUt-G59/our%20husbands)
 ![divider by @uzmacchiato on tumblr](https://64.media.tumblr.com/5f4deeee829244ce6f278a3961e87f3a/b8216eb8bbd2310e-8e/s2048x3072/f95408e00ccb01acdbc97ea651020c6ecc330e84.pnj)
   now enjoy our random stamps and blinkies
     
