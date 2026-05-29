@@ -15,10 +15,11 @@
 
  ˙✧˖°🦊 ༘⋆｡˚ Jiaoqiu and luuk herssen mains (jiaoqiu please rerun)
 
-<p align="center">  ₊˚⊹ 𐂯 Please cuddle with us as we do enjoy cuddles . W2i with us as we are usually afk . checkout our rentry and atabook if you want more about us. 
+<p align="center">  ₊˚⊹ 𐂯 Please cuddle with us as we do enjoy cuddles . W2i with us as we are usually afk . checkout our rentry and leave a drawing or message in our strawpage!! 
         
  
- [Rentry!](https://rentry.co/newrentryforconsys) [atabook](https://constellationsys.atabook.org/)
+  [Rentry!](https://rentry.co/newrentryforconsys) [atabook](https://constellationsys.atabook.org/)
+ [strawpage](https://xhyconst.straw.page)
 
 ![our husbands](https://file.garden/Z_T9YJFUvSUt-G59/our%20husbands)
 ![divider by @uzmacchiato on tumblr](https://64.media.tumblr.com/5f4deeee829244ce6f278a3961e87f3a/b8216eb8bbd2310e-8e/s2048x3072/f95408e00ccb01acdbc97ea651020c6ecc330e84.pnj)
