@@ -7,7 +7,7 @@
 
          ⊹ ࣪ ˖ Constellation sys // Aella
  
-      𓂃 ࣪˖ ִֶָ𐀔 bodily a minor
+      𓂃 ࣪˖ ִֶָ𐀔 18
 
               ⊹ ࣪ ˖ A system
 
