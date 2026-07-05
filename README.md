@@ -10,6 +10,7 @@
       𓂃 ࣪˖ ִֶָ𐀔 18
 
               ⊹ ࣪ ˖ A system
+                PLEASE GIVE US ANY LUUK OR JIAOQIU SKINZ!!
 
           ࣪ ִֶָ☾. usually found at hoyo area and afk there. 
 
