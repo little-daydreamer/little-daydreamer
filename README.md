@@ -13,7 +13,8 @@
                 PLEASE GIVE US ANY LUUK OR JIAOQIU SKINZ!!
 
           ࣪ ִֶָ☾. usually found at hoyo area and afk there. 
-
+  Pony town's jiaoqiu -- @pt-hall-of-media 
+  
  ˙✧˖°🦊 ༘⋆｡˚ Jiaoqiu and luuk herssen mains (jiaoqiu please rerun)
 
 <p align="center">  ₊˚⊹ 𐂯 Please cuddle with us as we do enjoy cuddles . W2i with us as we are usually afk . checkout our rentry and leave a drawing or message in our strawpage!! 
